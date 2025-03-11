@@ -1,5 +1,5 @@
 - 👋 Hi, I’m SYLLA IBRAHIM
-- 👀 I’m interested in programing
+- 👀 I’m interested in programing and I love riding bikes 😄
 - 🌱 I’m currently learning different programing languages like python,C++ and C#
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me scheickna.sylla@iit.ci
